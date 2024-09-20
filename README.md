@@ -1,4 +1,5 @@
-Mr. Watsons Blue prnt done by Kevin DaCosta
+
+Mr. Watsons Blue print drawn by Kevin DaCosta
 
 Ground Floor
 
